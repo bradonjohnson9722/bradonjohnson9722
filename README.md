@@ -12,7 +12,7 @@
 
 - 🤝 I’m looking for help with **collaborating on projects, mentoring, or developing scalable solutions.**
 
-- 📫 How to reach me **prettyipanda0221@gmail.com**
+- 📫 How to reach me **8506599015**
 
 <p align="left">
 </p>
